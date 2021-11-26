@@ -1,0 +1,1 @@
+You can find our design and promo assets here, we are 100% open source, not 99.
